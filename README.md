@@ -112,7 +112,7 @@ If you're a humanitarian, researcher, social enterprise, organization, student, 
 <br><br>Since this data is high volume about domestic abuse and gender, with an actress/model and film industry element, it's highly relevant for classification and data science projects on those topics.
 <br><i>Please contact us for collaboration or if with questions on obtaining more data and code.</i>
 <br><br>
-<b>Although it's abuse of process, <a href="https://www.connecticutprotectivemoms.org/coercive-control-legislation-in-the">coercive control</a> is becoming illegal in more countries and states/provinces worldwide. <a href="https://cal.lawsoup.org/legal-guides/harassment/">Harrassment</a> is illegal.</b> 
+<b>Although it's abuse of process, <a href="https://www.connecticutprotectivemoms.org/coercive-control-legislation-in-the">coercive control</a> is becoming illegal in more countries and states/provinces worldwide. <a href="https://cal.lawsoup.org/legal-guides/harassment/">A variety of misconduct</a> is illegal.</b> 
 <br>To this degree, severity, and volume of intimidation, <a href="https://en.wikipedia.org/wiki/Witness_tampering">witness tampering</a> and <a href="https://en.wikipedia.org/wiki/Extortion">extortion</a> is already illegal.
 - <i>If you're a victim needing help against cyberabuse especially in <a href="https://safeescape.org">online domestic abuse</a>, operations, crime, and <a href="https://metta-space.com">hostile environments</a>, please use this example for your own awareness and contact us.</i><br>
 
