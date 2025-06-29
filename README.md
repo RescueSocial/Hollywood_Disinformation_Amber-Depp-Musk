@@ -24,7 +24,8 @@ Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the
 <a href="https://youtu.be/YW1yH-bTWi8?si=oRzfmFvcqxsT8igl">
 <img src="https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg" width=40% height=40%>
 </a><br>
-<a href="https://www.youtube.com/live/tsfwS8ax-wI?si=s9ixYkav8ogQ-Uth"><img src="https://img.youtube.com/vi/tsfwS8ax-wI/0.jpg" width=40% height=40%></a><br>
+<a href="https://www.youtube.com/live/tsfwS8ax-wI?si=s9ixYkav8ogQ-Uth"><img src="https://img.youtube.com/vi/tsfwS8ax-wI/0.jpg" width=20% height=20%></a><br>
+Modern Experiences and Understanding from previous eras...<br>
 
 #### <i><b>Millions of Texts and Millions of Accounts were studied for Social Network Analysis.</b></i>
 
