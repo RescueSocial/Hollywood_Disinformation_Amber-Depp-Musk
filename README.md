@@ -167,10 +167,7 @@ Analysis is in-progress across-platforms, <b>going beyond any previous public st
 - <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots/tree/main/Subjective%20Preliminary%20Claims">'Subjective Preliminary Claims'</a> sources explanations to layers of services, companies, decades of fixers, coercive control, social media building, insider threats, and malice where tampering and extortion using cyber activities can come from.
 
 ### <b>Background:</b>
-- Amber Heard's August 2020 Counterclaims on Bots focused on Correlating Edited Media Leaks and Top Posting Twitter Accounts Layer only: https://www.scribd.com/document/473092071/cl-2019-2911-def-counterclaims-8-10-2020
-- Multiple <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots/tree/main/Research%20Papers%20-%20Background">Research Papers</a> on Disinformation/Influence Operations Cross-Platforms
-- <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots/tree/main/Timeline%20Comparisons%20-%20Events">Timelines</a> of Situations of distress to Data and <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots/tree/main/-%20Study%20Case%20-%20Effects%2C%20Risks%2C%20Origins/Studying%20Technologies">Studying Technologies</a> (e.g., data analysis, data science, AI/ML, NLU/NLG, content review systems).
-- Influence Operation of 6,000 Twitter accounts found by BotSentinel: https://youtu.be/bb2bC04OEPw<br>
+Comparing abuse patterns from the Silent Era of Film through Golden Hollywood to modern times reveals the unique vulnerabilities that creatives face across generations. Each era has brought distinct challenges and forms of exploitation that adapt to the technology and cultural contexts of their time. Creatives face distinct types of abuse - professional sabotage, artistic suppression, identity theft, reputation destruction, stalking, coercive control, and various forms of assault - that differ from other industries due to their public visibility and economic dependence on public perception. This generational comparison illuminates how abuse tactics consistently evolve while targeting the creative spirit and personal autonomy that artists need to thrive.
  
 
 ### <b>Related Articles for Understanding:</b><br> 
