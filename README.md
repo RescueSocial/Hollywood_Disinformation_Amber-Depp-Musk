@@ -21,7 +21,7 @@ Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the
 
 #### <i><b>Millions of Texts and Millions of Accounts were studied for Social Network Analysis.</b></i>
 
-We're Worldwide Independent Researchers with over 20 data analysts, scientists, and observers analyzing this data for over a year. Research and development is ongoing, and this public operation spanning for years continues. We invite researchers, an ethical public, and students to study this public case example.
+We're Worldwide Independent Researchers with over 20 data analysts, scientists, and observers analyzing this data for over a year. Research and development is ongoing, and this public operation spanning for years continues. We invite researchers, an ethical public, and students to investigate Arts Cases.
 
 #### <i><b>Data collected on Amber Heard is primarily related to the years of the operation of 2018-2022, but is fully collected from 2008-2022.</b></i>
 
