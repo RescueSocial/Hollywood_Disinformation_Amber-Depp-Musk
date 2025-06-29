@@ -1,6 +1,5 @@
 # Hollywood_Disinformation_Operations_Bots
-<b><i>Social Network Analysis of Disinformation/Influence Operations and Bots</i> Cross-Platforms on <i>Amber Heard</i>. 
-<br>Twitter, Reddit, YouTube, Instagram, Change.org, Facebook, TikTok, Tumblr for <i>8 Social Media Platforms</i>.</b>
+<b><i>Social Network Analysis of Disinformation/Influence Operations and Bots</i> Cross-Platforms on <i>Amber Heard, Johnny Depp, Elon Musk</i>. Remember to consider people before objects... Twitter, Reddit, YouTube, Instagram, Change.org, Facebook, TikTok, Tumblr for <i>8 Social Media Platforms</i>.</b>
 <br>Compare this to Arts Cases<br>
 
 <i><a href="https://vimeo.com/862288304">Educational & Symbolic Movie:</a></i>
@@ -13,10 +12,9 @@
 
 <b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
 <br>
+[![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady](https://img.youtube.com/vi/beYn6CB3eDA/0.jpg)](https://www.youtube.com/watch?v=beYn6CB3eDA)
 <br>The judge accepts the witness that exonerates the victim. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
 <br>KIM NOVAK SCENE BELOW<br>
-[![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady](https://img.youtube.com/vi/beYn6CB3eDA/0.jpg)](https://www.youtube.com/watch?v=beYn6CB3eDA)
-<br>
 <br>Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
 
