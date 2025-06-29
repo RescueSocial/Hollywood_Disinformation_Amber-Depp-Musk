@@ -27,8 +27,8 @@ Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the
 Alexa Nikolas on Institutionalized Stalking
 <br><a href="https://www.youtube.com/live/tsfwS8ax-wI?si=s9ixYkav8ogQ-Uth"><img src="https://img.youtube.com/vi/tsfwS8ax-wI/0.jpg" width=20% height=20%></a><br>
 Anthony Fox's Lawsuit Documents Obtained -<br>
-(1)<a href="https://www.scribd.com/document/846445922/Anthony-Fox-Case-v-Viper-Room-Trouser-Depp-Proposed-Amendment-of-Complaint-to-Conform-to-Proof">Anthony Fox Case v Viper Room, Trouser Trumpet Inc - [Proposed] Amendment of Complaint to Conform to Proof</a><br>
-(2)<a href="https://www.scribd.com/document/846444770/Anthony-Fox-v-Viper-Room-Trouser-Depp-Plaintiff-s-Reply-Memorandum-Re-Application-of-Crime-fraud-Exception-to-Attorney-client-Privilege">Anthony Fox v Viper Room, Trouser Trumpet Inc - Plaintiff's Reply Memorandum Re Application of Crime-fraud Exception to Attorney-client Privilege</a><br>
+(1) <a href="https://www.scribd.com/document/846445922/Anthony-Fox-Case-v-Viper-Room-Trouser-Depp-Proposed-Amendment-of-Complaint-to-Conform-to-Proof">Anthony Fox Case v Viper Room, Trouser Trumpet Inc - [Proposed] Amendment of Complaint to Conform to Proof</a><br>
+(2) <a href="https://www.scribd.com/document/846444770/Anthony-Fox-v-Viper-Room-Trouser-Depp-Plaintiff-s-Reply-Memorandum-Re-Application-of-Crime-fraud-Exception-to-Attorney-client-Privilege">Anthony Fox v Viper Room, Trouser Trumpet Inc - Plaintiff's Reply Memorandum Re Application of Crime-fraud Exception to Attorney-client Privilege</a><br>
 
 
 #### <i><b>Millions of Texts and Millions of Accounts were studied for Social Network Analysis.</b></i>
