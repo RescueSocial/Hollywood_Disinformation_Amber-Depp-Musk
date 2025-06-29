@@ -194,7 +194,7 @@ Worldwide Data Scientists, Researchers in Cyber Intelligence, PhDs, Data Analyst
 - <i><b>Category 6: <a href="https://www.brookings.edu/research/the-breakout-scale-measuring-the-impact-of-influence-operations/">The Breakout Scale: Measuring the Impact of Influence Operations</a> by <a href="https://twitter.com/benimmo/status/1309532354306879488">Ben Nimmo</a> in Social Network Analysis Standards:</b></i><br>
 "Category One operations only spread within one community on one platform, while Category Two operations either spread in one community across multiple platforms, or spread across multiple communities on one platform. Category Three operations spread across <i>multiple social media platforms and reach multiple communities.</i> 
  <br>Category Four operations break out from social media completely and are amplified by <i>mainstream media</i>, while Category Five operations are amplified by <i>high-profile individuals</i> such as celebrities and political candidates. 
- <i><br>An IO reaches <b>Category Six</b> if it triggers a policy response or some other form of concrete action, or if it includes <b>a call for violence.</i></b>"
+ <i><br>An IO reaches <b>Category Six</b> if it triggers a policy response or some other form of concrete action, or if it includes a call for violence.</i>"
  - <i><a href="https://en.wikipedia.org/wiki/Scientific_method">Scientific Method</a>: Observation, Question, Hypothesis, Experiment, Results, Conclusion 
  <br>- Limit Variables and Repeat Same Methods on all platforms. 
 <br>- Verifiable IDs of postings and accounts, APIs, multiple forms of documentation.
