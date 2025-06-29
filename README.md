@@ -108,8 +108,7 @@ Compliments Generation on Amber Heard based on Jason Momoa<br>
 
 ### <b>Collaboration:</b> 
 If you're a humanitarian, researcher, social enterprise, organization, student, or academic helping female victims and witnesses of abuse, coercive control, domestic abuse, crime, operations, violence, harassment, or hostile environments - we welcome collaboration with you. Supportive assistants understand Social Network Analysis, machine learning, Natural Language Processing, artificial intelligence, compassionate rescue projects, reporting crime efforts, and timeline development to help other victims and their lives.
-<br>In traditional arts cases, victims often face unauthorized recordings, retaliation, and systematic campaigns designed to silence their voices and undermine their experiences. Lived experience represents the authentic, personal reality that victims have endured and witnessed firsthand, ensuring that evidence serves the fundamental need to protect and support people first, rather than advancing institutional or legal agendas that may overlook the human cost.
-
+<br><br>In traditional arts cases, victims often face unauthorized recordings, retaliation, and systematic campaigns designed to silence their voices and undermine their experiences. Lived experience represents the authentic, personal reality that victims have endured and witnessed firsthand, ensuring that evidence serves the fundamental need to protect and support people first, rather than advancing institutional or legal agendas that may overlook the human cost.
 <br>Since this data is high volume about domestic abuse and gender, with an actress/model and film industry element, it's highly relevant for classification and data science projects on those topics. Don't forget Artists!
 <br><i>Please contact us for collaboration or if with questions on obtaining more data and code.</i>
 <br><br>
