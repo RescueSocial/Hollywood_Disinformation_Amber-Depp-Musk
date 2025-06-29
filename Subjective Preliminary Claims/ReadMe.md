@@ -1,5 +1,5 @@
 # Subjective Preliminary Claims
-<b>Here are claims behind the Private Sector Disinformation/Influence Operations related to risks online correlating to in-person, the motivations, the high-volume, the crimes, and the devastation towards Amber Heard. 
+<b>Here are claims behind the Private Sector Disinformation/Influence Operations related to risks online correlating to in-person, the motivations, the high-volume, the crimes, and the devastation... 
 - To save a life - and other lives these services can ravage at far lower volume due to less resilience - see attachments, leads, and read the below to understand the modus operendi, traits, risks, origins, and signs.
  <br>These interpretations are largely unseen due to the influence operations of <a href="https://www.brookings.edu/research/the-breakout-scale-measuring-the-impact-of-influence-operations/">Category 6</a> - also going to in-person where both sides are influenced against her. </b>
 - We're creating precedents to have this as a public research study. Connect to Folder <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots/tree/main/-%20Study%20Case%20-%20Effects%2C%20Risks%2C%20Origins">"Study Case - Effects, Risks, Origins."</a>
@@ -10,9 +10,8 @@ By researching and providing community aid when there's an operation or abuse of
 - <i><b>Usually operations are not this long, volumnious, or deadly without ever being mitigated or acknowledged.</b></i> However, we can see the obsession to destroy victims to force them to recant through coercive control and <a href="https://www.adweek.com/performance-marketing/investigator-barresi-opens-up-on-hollywood/">fixers</a>.
 <br><i>- Often finding the sources and origins is looking for where the suspicious activities and parties 'slip up' in their predictability. A main issue is lacking experts to collect obvious and public data without extortion.</i>
 
-
 ## Private Sector: 
-<br>The motivations behind these operations often come from the coercive control to take down these victims, their witnesses, and their support for decades, only now moved mostly online to avoid data analysis and oversight. The higher skill, natural language, and volume stems from the amounts of funds, specialties, and layers of companies used.
+The motivations behind these operations suggest coercive control to take down these victims, their witnesses, and their support for decades, only now moved mostly online to avoid data analysis and oversight. The higher skill, natural language, and volume stems from the amounts of funds, specialties, and layers of companies used.
 - E.g., attacking the partners of these figures has been happening for decades, e.g, with <a href="https://www.adweek.com/performance-marketing/investigator-barresi-opens-up-on-hollywood/">'Fixers,</a>' but not publicly researched before. It truly requires gamifying and deflecting with your own data, analysis, intelligence, and power. It can ruin, destroy, and destruct.
 - At higher income levels, private security can be used against victims
 - For the first time, we're confronting these issues harming these types of women/targets and establishing precedents of technologies which can be used. We can save lives by causing chain reactions of finally caring about these situations to prevent harms earlier.
