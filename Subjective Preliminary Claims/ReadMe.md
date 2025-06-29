@@ -8,12 +8,10 @@
 By researching and providing community aid when there's an operation or abuse of coercive control in-progress, you could save a life. Here are the layers underneath where an operation comes from, how it harms others and stems from decades building up.
 - When reporters fail to investigate for the victim (as in this high-profile operation) and insider threats ruin investigations, it can then fail to escalate operations to in-person to be validated,</a> here's the 'coercive control' of why...
 - <i><b>Usually operations are not this long, volumnious, or deadly without ever being mitigated or acknowledged.</b></i> However, we can see the obsession to destroy victims to force them to recant through coercive control and <a href="https://www.adweek.com/performance-marketing/investigator-barresi-opens-up-on-hollywood/">fixers</a>.
-- This goes beyond the data to look for origins of in-person violence to the online operations - including the motive to kill her with them.
 <br><i>- Often finding the sources and origins is looking for where the suspicious activities and parties 'slip up' in their predictability. A main issue is lacking experts to collect obvious and public data without extortion.</i>
 
 
 ## Private Sector: 
-Multiple private companies and services in layers are clearly being used against Amber Heard to this extreme of volume.
 <br>The motivations behind these operations often come from the coercive control to take down these women, their witnesses, and their support for decades, only now moved mostly online to avoid data analysis and oversight. The higher skill, natural language, and volume stems from the amounts of funds, specialties, and layers of companies used.
 - E.g., attacking the partners of these figures has been happening for decades, e.g, with <a href="https://www.adweek.com/performance-marketing/investigator-barresi-opens-up-on-hollywood/">'Fixers,</a>' but not publicly researched before. It truly requires gamifying and deflecting with your own data, analysis, intelligence, and power. It can ruin, destroy, and destruct.
 - At higher income levels, private security can be used against women in domestic abuse. At any level, software and accounts can be used against women.
@@ -25,7 +23,6 @@ Multiple private companies and services in layers are clearly being used against
 - Social connects with the Technology and Data.</b>
 
 ### <b>Background Interpretations of Sources:</b> <br>
-It is clear that multiple layers of companies and services are used against Amber Heard. The modus operendi is clearly presented to us as ethical independent parties.
 
 The main articles we based our studies on were on <a href="https://go.recordedfuture.com/hubfs/reports/cta-2019-0930.pdf">"Disinformation in the Private Sector: The Price of Influence"</a> and <a href="https://gadgets360.com/social-networking/news/devumi-a-firm-that-sells-fake-twitter-followers-to-be-probed-by-new-york-attorney-general-1805985">Devumi</a> bots - where public figures had millions of false followers and made copies of other people's biographies and personas. 
 
