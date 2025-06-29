@@ -8,10 +8,10 @@
 <a href="https://vimeo.com/862288304">
 <img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=40% height=40%>
 </a><br>
-<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies -
+<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies (Blackmail & Coercion) -
 <br><a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York Coercion Law Needed in California</a></i><br>
 
-<b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
+<b>Kim Novak - Witness "Appears" in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
 <br>
 [![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady](https://img.youtube.com/vi/beYn6CB3eDA/0.jpg)](https://www.youtube.com/watch?v=beYn6CB3eDA)
 <br>The judge accepts the witness that exonerates the victim. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
