@@ -3,7 +3,7 @@
 <br>Twitter, Reddit, YouTube, Instagram, Change.org, Facebook, TikTok, Tumblr for <i>8 Social Media Platforms</i>.</b>
 <br><i>Compare this to Arts Cases</i><br>
 
-<i>"Educational & Symbolic Movie:</i>
+<i>Educational & Symbolic Movie:</i>
 <br>
 <a href="https://vimeo.com/862288304">
 <img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=40% height=40%>
