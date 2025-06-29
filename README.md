@@ -19,12 +19,16 @@ Blackmail & Coercion depicted in <a href="https://vimeo.com/862288304">the movie
 Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
 
-<i>Compare Generations of Hollywood Research-Confidential and Case People of California - Film, Golden Hollywood to Modern Experiences and Understanding of what occurred to Artists from previous eras...</i>
+<i>Compare Generations of Hollywood Research-Confidential and Case People of California - Film. Golden Hollywood to Modern Experiences and Understanding what occurred to Artists from multiple sides and eras...</i>
 <br>
 <a href="https://youtu.be/YW1yH-bTWi8?si=oRzfmFvcqxsT8igl">
 <img src="https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg" width=40% height=40%>
 </a><br>
 <a href="https://www.youtube.com/live/tsfwS8ax-wI?si=s9ixYkav8ogQ-Uth"><img src="https://img.youtube.com/vi/tsfwS8ax-wI/0.jpg" width=20% height=20%></a><br>
+Anthony Fox's Lawsuit Documents Obtained -<br>
+<a href="https://www.scribd.com/document/846445922/Anthony-Fox-Case-v-Viper-Room-Trouser-Depp-Proposed-Amendment-of-Complaint-to-Conform-to-Proof">Anthony Fox Case v Viper Room, Trouser Trumpet Inc - [Proposed] Amendment of Complaint to Conform to Proof</a><br>
+<a href="https://www.scribd.com/document/846444770/Anthony-Fox-v-Viper-Room-Trouser-Depp-Plaintiff-s-Reply-Memorandum-Re-Application-of-Crime-fraud-Exception-to-Attorney-client-Privilege">Anthony Fox v Viper Room, Trouser Trumpet Inc - Plaintiff's Reply Memorandum Re Application of Crime-fraud Exception to Attorney-client Privilege</a><br>
+
 
 #### <i><b>Millions of Texts and Millions of Accounts were studied for Social Network Analysis.</b></i>
 
