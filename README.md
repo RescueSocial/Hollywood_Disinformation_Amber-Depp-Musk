@@ -22,7 +22,7 @@ Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the
 <i>Compare Generations of Hollywood Research-Confidential and Case People of California - Film:</i>
 <br>
 <a href="https://youtu.be/YW1yH-bTWi8?si=oRzfmFvcqxsT8igl">
-<img src="https://img.youtube.com/vi/oRzfmFvcqxsT8igl/0.jpg" width=40% height=40%>
+<img src="https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg" width=40% height=40%>
 </a><br>
 <a href="https://www.youtube.com/live/tsfwS8ax-wI?si=s9ixYkav8ogQ-Uth"><img src="https://img.youtube.com/vi/s9ixYkav8ogQ-Uth/0.jpg" width=40% height=40%></a><br>
 
