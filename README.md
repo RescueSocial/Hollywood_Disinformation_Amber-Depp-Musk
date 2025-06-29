@@ -1,4 +1,4 @@
-# Hollywood_Disinformation_Operations_Bots_Personnel
+# Hollywood_Disinformation_Bots_Personnel
 <b><i>Social Network Analysis of Disinformation and Influence...</i> Platforms, Freelancing on <i>Amber Heard, Johnny Depp, Elon Musk</i>... Remember to consider people before objects...
 <br>Twitter, Reddit, YouTube, Instagram, Change.org, Facebook, TikTok, Tumblr for <i>8 Social Media Platforms</i>.</b>
 <br><i>Compare this to Arts Cases</i><br>
