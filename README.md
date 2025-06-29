@@ -19,7 +19,7 @@ Blackmail & Coercion depicted in <a href="https://vimeo.com/862288304">the movie
 Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
 
-<i>Compare Generations of Hollywood Research-Confidential and Case People of California - Film, Golden Hollywood to Modern Experiences and Understanding of what occurred to Artists from previous eras..:</i>
+<i>Compare Generations of Hollywood Research-Confidential and Case People of California - Film, Golden Hollywood to Modern Experiences and Understanding of what occurred to Artists from previous eras...</i>
 <br>
 <a href="https://youtu.be/YW1yH-bTWi8?si=oRzfmFvcqxsT8igl">
 <img src="https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg" width=40% height=40%>
