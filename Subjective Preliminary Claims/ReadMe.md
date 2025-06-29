@@ -12,9 +12,9 @@ By researching and providing community aid when there's an operation or abuse of
 
 
 ## Private Sector: 
-<br>The motivations behind these operations often come from the coercive control to take down these women, their witnesses, and their support for decades, only now moved mostly online to avoid data analysis and oversight. The higher skill, natural language, and volume stems from the amounts of funds, specialties, and layers of companies used.
+<br>The motivations behind these operations often come from the coercive control to take down these victims, their witnesses, and their support for decades, only now moved mostly online to avoid data analysis and oversight. The higher skill, natural language, and volume stems from the amounts of funds, specialties, and layers of companies used.
 - E.g., attacking the partners of these figures has been happening for decades, e.g, with <a href="https://www.adweek.com/performance-marketing/investigator-barresi-opens-up-on-hollywood/">'Fixers,</a>' but not publicly researched before. It truly requires gamifying and deflecting with your own data, analysis, intelligence, and power. It can ruin, destroy, and destruct.
-- At higher income levels, private security can be used against women in domestic abuse. At any level, software and accounts can be used against women.
+- At higher income levels, private security can be used against victims
 - For the first time, we're confronting these issues harming these types of women/targets and establishing precedents of technologies which can be used. We can save lives by causing chain reactions of finally caring about these situations to prevent harms earlier.
 
 ## Evolving Subjective Interpretations - 
@@ -28,8 +28,6 @@ The main articles we based our studies on were on <a href="https://go.recordedfu
 
 As seen in other case examples e.g., against actresses, models, socialites, and partners of atheletes, the Natural Language of these operations are similar as are their capabilities of paying hundreds of thousands to millions for these operations against women in these conditions.
 <br>- Secondly, it's extreme monitoring with coercive control and domestic abuse by partners to not allow these women to move onto others. Private services and <a href="https://abcnews.go.com/Primetime/LegalCenter/story?id=1625097&page=1">'fixers'</a> specialize in harming women who are partners of these figures. It's abuse of process and intimidation to threaten with death, destruction.
-
-In Amber Heard's counterclaim in August 2020, she points out how her ex-partner joined Instagram and accumulated followers in only 15 minutes which was during his influence operations against her online. At the same time, Adam Waldman, one of his workers, himself points out <b>"the fastest to 1 million followers in the history of Instagram"</b> in an email to Twitter staff after his suspension. Speed correlates to signaling for bots to be released.
 
 <b>Private Sector - Connections to Sports accounts, Hollywood-Fixers, Bots, and <a href="https://variety.com/2015/biz/news/anthony-pellicano-wiretap-appeals-court-sentencing-1201578024/">Companies</a></b>:
 - Sports accounts were not only seen by the cyber intelligence reseacher in April 2021 (Arsenal sports network), but also show in like-bots analysis.  
