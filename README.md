@@ -1,10 +1,27 @@
-# Amber-Heard_Disinformation_Operations_Bots
-<b><i>Social Network Analysis of Disinformation/Influence Operations and Bots</i> Cross-Platforms on <i>Amber Heard</i>. 
+# Hollywood_Disinformation_Bots_Personnel
+<b><i>Social Network Analysis of Disinformation and Influence...</i> Platforms, Freelancing on <i>Amber Heard, Johnny Depp, Elon Musk</i>... Remember to consider people before objects...
 <br>Twitter, Reddit, YouTube, Instagram, Change.org, Facebook, TikTok, Tumblr for <i>8 Social Media Platforms</i>.</b>
+<br><i>Compare this to Arts Cases</i><br>
+
+<i>Educational & Symbolic Movie:</i>
+<br>
+<a href="https://vimeo.com/862288304">
+<img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=40% height=40%>
+</a><br>
+<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies -
+<br><a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York Coercion Law Needed in California</a></i><br>
+Blackmail & Coercion depicted in <a href="https://vimeo.com/862288304">the movie</a> to compare.
+
+<b>Kim Novak - Witness "Appears" in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
+<br>
+[![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady](https://img.youtube.com/vi/beYn6CB3eDA/0.jpg)](https://www.youtube.com/watch?v=beYn6CB3eDA)
+<br>The judge accepts the witness that exonerates the victim. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information. KIM NOVAK SCENE <br>
+Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
+ <br>
 
 #### <i><b>Millions of Texts and Millions of Accounts were studied for Social Network Analysis.</b></i>
 
-We're Worldwide Independent Researchers with over 20 data analysts, scientists, and observers analyzing this data for over a year. Research and development is ongoing, and this public operation spanning for years continues. We invite researchers, an ethical public, and students to study this public case example. 
+We're Worldwide Independent Researchers with over 20 data analysts, scientists, and observers analyzing this data for over a year. Research and development is ongoing, and this public operation spanning for years continues. We invite researchers, an ethical public, and students to investigate, compare to help Arts Cases.
 
 #### <i><b>Data collected on Amber Heard is primarily related to the years of the operation of 2018-2022, but is fully collected from 2008-2022.</b></i>
 
@@ -146,7 +163,7 @@ Analysis is in-progress across-platforms, <b>going beyond any previous public st
 <i>"Disinformation in the Private Sector: The Price of Influence"</i><br>
 There have been victims of disinformation, intimidation, witness tampering, crime, and influence operations in the <b>Private Sector</b> for decades. Operations can mirror coercive control strategies of multiple types of abuse. This open-source study can be used to help others by creating awareness, warning, and guides without needing to start from scratch.
 
-- <b>Hired Services - New Accounts Layers, Aged Accounts, Created News-Sites:</b></br>
+- <b>FREELANCERS - New Accounts Layers, Aged Accounts, Created News-Sites:</b></br>
 <a href="https://go.recordedfuture.com/hubfs/reports/cta-2019-0930.pdf">https://go.recordedfuture.com/hubfs/reports/cta-2019-0930.pdf</a><br>
 - Psy-Group's Operations and Bots - https://www.newyorker.com/magazine/2019/02/18/private-mossad-for-hire<br>
 - Devumi Services and Bots for Online Influence Industry and Public Figures - (1) https://www.thebureauinvestigates.com/stories/2017-12-07/twitterbots<br> (2) <a href="https://gadgets360.com/social-networking/news/devumi-a-firm-that-sells-fake-twitter-followers-to-be-probed-by-new-york-attorney-general-1805985">devumi-a-firm-that-sells-fake-twitter-followers-to-be-probed-by-new-york-attorney-general</a>
