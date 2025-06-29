@@ -35,7 +35,7 @@ Anthony Fox's Lawsuit Documents Obtained -<br>
 
 We're Worldwide Independent Researchers with over 20 data analysts, scientists, and observers analyzing this data for over a year. Research and development is ongoing, and this public operation spanning for years continues. We invite researchers, an ethical public, and students to investigate, compare to help Arts Cases.
 
- <b>NOTE:</b>It's profoundly important to maintain deep compassion for all victims and witnesses throughout. Behind every situation lies a real human being who has experienced trauma, manipulation, or abuse. Just as we see in arts cases where artists and assault victims face similar patterns of conduct, their courage and resilience deserves our utmost respect and care. These individuals deserve to be valued as human beings first, with their wellbeing taking precedence over any legal proceedings, public discourse, or interests.
+ <b>NOTE:</b> It's profoundly important to maintain compassion for all victims and witnesses throughout. Behind every situation lies a real human being who has experienced trauma, manipulation, or abuse. Just as we see in arts cases where artists and assault victims face similar patterns of conduct, their courage and resilience deserves our utmost respect and care. These individuals deserve to be valued as human beings first, with their wellbeing taking precedence over any legal proceedings, discourse, or interests.
 
 #### <i><b>Data collected on Amber Heard is primarily related to the years of the operation of 2018-2022, but is fully collected from 2008-2022.</b></i>
 
