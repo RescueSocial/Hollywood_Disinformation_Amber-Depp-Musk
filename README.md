@@ -10,7 +10,7 @@
 </a><br>
 <i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies -
 <br><a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York Coercion Law Needed in California</a></i><br>
-Blackmail & Coercion depicted in <a href="https://vimeo.com/862288304">the movie</a>, compare.
+Blackmail & Coercion depicted in <a href="https://vimeo.com/862288304">the movie</a> to compare.
 
 <b>Kim Novak - Witness "Appears" in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
 <br>
