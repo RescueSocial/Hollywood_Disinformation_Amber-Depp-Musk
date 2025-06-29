@@ -179,14 +179,13 @@ There have been victims of disinformation, intimidation, witness tampering, crim
 
 - <b>FREELANCERS - New Accounts Layers, Aged Accounts, Created News-Sites:</b></br>
 <a href="https://go.recordedfuture.com/hubfs/reports/cta-2019-0930.pdf">https://go.recordedfuture.com/hubfs/reports/cta-2019-0930.pdf</a><br>
-- Psy-Group's Operations and Bots - https://www.newyorker.com/magazine/2019/02/18/private-mossad-for-hire<br>
+-  Ronan Farrow: Psychological Freelancers and Bots - https://www.newyorker.com/magazine/2019/02/18/private-mossad-for-hire<br>
 - Devumi Services and Bots for Online Influence Industry and Public Figures - (1) https://www.thebureauinvestigates.com/stories/2017-12-07/twitterbots<br> (2) <a href="https://gadgets360.com/social-networking/news/devumi-a-firm-that-sells-fake-twitter-followers-to-be-probed-by-new-york-attorney-general-1805985">devumi-a-firm-that-sells-fake-twitter-followers-to-be-probed-by-new-york-attorney-general</a>
-- BlackCube vs Actresses - https://www.newyorker.com/news/news-desk/harvey-weinsteins-army-of-spies<br>
+- Mutliple Personnel harm abuse victims, assault victims, witnesses (Actresses) - https://www.newyorker.com/news/news-desk/harvey-weinsteins-army-of-spies<br>
 - Medium "Bots Created Anti-Amber Heard" Operations - <a href="https://medium.com/@aquaman-bots/how-social-bots-created-an-anti-amber-heard-aquaman-campaign-e68e16637d3a">https://medium.com/@aquaman-bots/how-social-bots-created-an-anti-amber-heard-aquaman-campaign-e68e16637d3a</a><br>
-- Video - Rose McGowan vs BlackCube - https://www.youtube.com/watch?v=tv6ewJQ7L3k<br>
-- Actress Meghan Markle Operations - (1) <a href="https://laptrinhx.com/meghan-markle-s-twitter-bot-network-the-whole-thing-is-a-bit-insane-2560404981">https://laptrinhx.com/meghan-markle-s-twitter-bot-network-the-whole-thing-is-a-bit-insane-2560404981</a> (2) https://www.newsweek.com/meghan-markle-troll-accused-posing-black-woman-second-account-suspended-twitter-bot-sentinel-1652271<br>
+- Video - Rose McGowan vs BlackCube, breakins, monitoring, and illegal recordings - https://www.youtube.com/watch?v=tv6ewJQ7L3k<br>
+- Royalty, Meghan Markle Operations - (1) <a href="https://laptrinhx.com/meghan-markle-s-twitter-bot-network-the-whole-thing-is-a-bit-insane-2560404981">https://laptrinhx.com/meghan-markle-s-twitter-bot-network-the-whole-thing-is-a-bit-insane-2560404981</a> (2) https://www.newsweek.com/meghan-markle-troll-accused-posing-black-woman-second-account-suspended-twitter-bot-sentinel-1652271<br>
 - Jessica Reisinger-Raubenolt & Lilia Operations - https://www.tampabay.com/news/crime/2021/08/05/cameron-herrin-went-to-prison-for-a-tampa-crash-were-the-tweets-that-followed-real<br>
-- Amber Heard, Cyrillic Spiders from Mars - https://www.thegeekbuzz.com/the-basement/cyrillic-russian-spiders-from-mars
 
 ### <b>Scientific Methods:</b>
 Worldwide Data Scientists, Researchers in Cyber Intelligence, PhDs, Data Analysts, Artificial Intelligence Researchers, and a former Google Research Intern collected and analyzed data. We use the scientific method of testing.
