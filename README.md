@@ -1,7 +1,7 @@
 # Hollywood_Disinformation_Operations_Bots
 <b><i>Social Network Analysis of Disinformation/Influence Operations and Bots</i> Cross-Platforms on <i>Amber Heard</i>. 
 <br>Twitter, Reddit, YouTube, Instagram, Change.org, Facebook, TikTok, Tumblr for <i>8 Social Media Platforms</i>.</b>
-
+<br>Compare this to Arts Cases<br>
 
 <i><a href="https://vimeo.com/862288304">Educational & Symbolic Movie:</a></i>
 <br>
@@ -164,7 +164,7 @@ Analysis is in-progress across-platforms, <b>going beyond any previous public st
 <i>"Disinformation in the Private Sector: The Price of Influence"</i><br>
 There have been victims of disinformation, intimidation, witness tampering, crime, and influence operations in the <b>Private Sector</b> for decades. Operations can mirror coercive control strategies of multiple types of abuse. This open-source study can be used to help others by creating awareness, warning, and guides without needing to start from scratch.
 
-- <b>Hired Services - New Accounts Layers, Aged Accounts, Created News-Sites:</b></br>
+- <b>FREELANCERS - New Accounts Layers, Aged Accounts, Created News-Sites:</b></br>
 <a href="https://go.recordedfuture.com/hubfs/reports/cta-2019-0930.pdf">https://go.recordedfuture.com/hubfs/reports/cta-2019-0930.pdf</a><br>
 - Psy-Group's Operations and Bots - https://www.newyorker.com/magazine/2019/02/18/private-mossad-for-hire<br>
 - Devumi Services and Bots for Online Influence Industry and Public Figures - (1) https://www.thebureauinvestigates.com/stories/2017-12-07/twitterbots<br> (2) <a href="https://gadgets360.com/social-networking/news/devumi-a-firm-that-sells-fake-twitter-followers-to-be-probed-by-new-york-attorney-general-1805985">devumi-a-firm-that-sells-fake-twitter-followers-to-be-probed-by-new-york-attorney-general</a>
