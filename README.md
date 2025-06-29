@@ -14,10 +14,23 @@ Blackmail & Coercion depicted in <a href="https://vimeo.com/862288304">the movie
 
 <b>Kim Novak - Witness "Appears" in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
 <br>
-[![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady](https://img.youtube.com/vi/beYn6CB3eDA/0.jpg)](https://www.youtube.com/watch?v=beYn6CB3eDA)
-<br>The judge accepts the witness that exonerates the victim. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information. KIM NOVAK SCENE <br>
+<a href="https://www.youtube.com/watch?v=beYn6CB3eDA">
+<img src="https://img.youtube.com/vi/beYn6CB3eDA/0.jpg" width=40% height=40%></a>
+<br>The judge accepts the witness that exonerates the victim. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information. Blackmailing occurs and high media. KIM NOVAK SCENE <br>
 Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
+
+<i>Compare Generations of Hollywood Research-Confidential and Case People of California - Film. Golden Hollywood to Modern Experiences and Understanding what occurred to Artists from multiple sides and eras...</i>
+<br>
+<a href="https://youtu.be/YW1yH-bTWi8?si=oRzfmFvcqxsT8igl">
+<img src="https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg" width=40% height=40%>
+</a><br>
+Alexa Nikolas on Institutionalized Stalking
+<br><a href="https://www.youtube.com/live/tsfwS8ax-wI?si=s9ixYkav8ogQ-Uth"><img src="https://img.youtube.com/vi/tsfwS8ax-wI/0.jpg" width=20% height=20%></a><br>
+Anthony Fox's Lawsuit Documents Obtained -<br>
+(1) <a href="https://www.scribd.com/document/846445922/Anthony-Fox-Case-v-Viper-Room-Trouser-Depp-Proposed-Amendment-of-Complaint-to-Conform-to-Proof">Anthony Fox Case v Viper Room, Trouser Trumpet Inc - [Proposed] Amendment of Complaint to Conform to Proof</a><br>
+(2) <a href="https://www.scribd.com/document/846444770/Anthony-Fox-v-Viper-Room-Trouser-Depp-Plaintiff-s-Reply-Memorandum-Re-Application-of-Crime-fraud-Exception-to-Attorney-client-Privilege">Anthony Fox v Viper Room, Trouser Trumpet Inc - Plaintiff's Reply Memorandum Re Application of Crime-fraud Exception to Attorney-client Privilege</a><br>
+NOTE: 
 
 #### <i><b>Millions of Texts and Millions of Accounts were studied for Social Network Analysis.</b></i>
 
