@@ -19,6 +19,7 @@ Blackmail & Coercion depicted in <a href="https://vimeo.com/862288304">the movie
 <br>The judge accepts the witness that exonerates the victim. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information. Blackmailing occurs and high media. KIM NOVAK SCENE <br>
 Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
+ <b>NOTE: </b><i>It's profoundly important to maintain deep compassion for all victims and witnesses throughout. Behind every situation lies a real human being who has experienced trauma, manipulation, or abuse. Just as we see in arts cases where artists and assault victims face similar patterns of conduct, their courage and resilience deserves our utmost respect and care. These individuals deserve to be valued as human beings first, with their wellbeing taking precedence over any legal proceedings, public discourse, or institutional interests.</i>
 
 <i>Compare Generations of Hollywood Research-Confidential and Case People of California - Film. Golden Hollywood to Modern Experiences and Understanding what occurred to Artists from multiple sides and eras...</i>
 <br>
@@ -30,7 +31,6 @@ Alexa Nikolas on Institutionalized Stalking
 Anthony Fox's Lawsuit Documents Obtained -<br>
 (1) <a href="https://www.scribd.com/document/846445922/Anthony-Fox-Case-v-Viper-Room-Trouser-Depp-Proposed-Amendment-of-Complaint-to-Conform-to-Proof">Anthony Fox Case v Viper Room, Trouser Trumpet Inc - [Proposed] Amendment of Complaint to Conform to Proof</a><br>
 (2) <a href="https://www.scribd.com/document/846444770/Anthony-Fox-v-Viper-Room-Trouser-Depp-Plaintiff-s-Reply-Memorandum-Re-Application-of-Crime-fraud-Exception-to-Attorney-client-Privilege">Anthony Fox v Viper Room, Trouser Trumpet Inc - Plaintiff's Reply Memorandum Re Application of Crime-fraud Exception to Attorney-client Privilege</a><br>
-<b>NOTE: </b><i>It's profoundly important to maintain deep compassion for all victims and witnesses throughout. Behind every situation lies a real human being who has experienced trauma, manipulation, or abuse. Just as we see in arts cases where artists and assault victims face similar patterns of conduct, their courage and resilience deserves our utmost respect and care. These individuals deserve to be valued as human beings first, with their wellbeing taking precedence over any legal proceedings, public discourse, or institutional interests.</i>
 
 #### <i><b>Millions of Texts and Millions of Accounts were studied for Social Network Analysis.</b></i>
 
