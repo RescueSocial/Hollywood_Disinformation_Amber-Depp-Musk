@@ -114,7 +114,7 @@ If you're a humanitarian, researcher, social enterprise, organization, student, 
 <br><br>
 <b>Although it's abuse of process, <a href="https://www.connecticutprotectivemoms.org/coercive-control-legislation-in-the">coercive control</a> is becoming illegal in more countries and states/provinces worldwide. <a href="https://cal.lawsoup.org/legal-guides/harassment/">A variety of misconduct</a> is illegal.</b> 
 <br>To this degree, severity, and volume of intimidation, <a href="https://en.wikipedia.org/wiki/Witness_tampering">witness tampering</a> and <a href="https://en.wikipedia.org/wiki/Extortion">extortion</a> is already illegal.
-- <i>If you're a victim needing help against cyberabuse especially in <a href="https://safeescape.org">online domestic abuse</a>, operations, crime, and <a href="https://metta-space.com">hostile environments</a>, please use this example for your own awareness and contact us.</i><br>
+- <i>If you're a victim needing help especially related to <a href="https://safeescape.org">types of abuse</a>, these types of problems, reporting crimes, and <a href="https://metta-space.com">hostile environments</a>, please use this example for your own awareness and contact us.</i><br>
 
 #### <b>Do No Harm:</b>
 All collaborators, researchers, and observers are required to sign, acknowledge, agree to "Do No Harm" agreements. If you are one of the victims, businesses, nonprofits, or entities listed in this study and want to collaborate with us, please contact us.
